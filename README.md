@@ -6,4 +6,4 @@ Machu Picchu, Cusco, Peru
 ### Tour Guide for Machu Picchu
 > If you want to visit one of the seven wonders of the world, be advised that this journey is not for the faint of heart as this will drain your energy going up the mountain and exploring the enormous citadel. Additionally, the oxygen level is low because of the high altitude of Machu Picchu which means you will have to save your breath and walk at a slow place for th entire trip, or else you will run out of breath. For this trip you would need to pack a lot of food and water, and carry it around in a bag because if you are visiting the temples, which require you to travel far, there are no nearby stores to sell you food or water. If you can keep all of these tips in mind, you will have a wonderful time exlporing Machu Picchus and its many wonders that it holds within the citadel. Safe travels!
 #### Trips to Machu Picchu
-https://www.getyourguide.com/-l1570/
+[https://www.getyourguide.com/-l1570/](https://www.getyourguide.com/-l1570/)
